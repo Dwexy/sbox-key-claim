@@ -10,3 +10,5 @@ step 4: go to https://asset.party/~get
 step 5: regret life decisions
 
 step 6: realize that someone else made a better version (https://gist.github.com/dankope/4ab6a43a5fbe1b1ef5764bdb76b782f3)
+
+step　̸̛͔̞̱̰̫̗̞̤̤͉̣̖̜̣̝͖̗͓͈̜̖̱̲̟̜̎͆̔̆͐̇͒̌̃̈́͆́͆̀̑͜ͅ : have facepunch patch bots
